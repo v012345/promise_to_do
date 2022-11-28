@@ -23,6 +23,7 @@
 + 青椒炒鸡蛋:egg: 注意盐
 + 鸡翅根炖土豆:sweet_potato: 多加酱油 , 注意油
 + 西红柿:tomato:炒鸡蛋:egg: 去皮
++ 粉丝娃娃菜:leafy_green: 学习中
 
 ## 给**老婆**按摩:yum:
 嘿嘿嘿:smirk: , 疯狂吃豆腐:confounded:
